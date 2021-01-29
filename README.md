@@ -1,2 +1,3 @@
-As I say: <I've always been more interested in the future than the past
-(https://programminghistorian.org)
+As Kim K said:
+< We're living in the future so
+< the present is our past.
