@@ -1,2 +1,2 @@
 
-<I've always been more interested in the future than the past>
+<I've always been more interested in the future than the past
